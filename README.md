@@ -1,4 +1,3 @@
-
 ### Hi all! 👋
 I'm Marielle, 29 years old and Davi's mom. Senior Quality Analyst with more 6 years of experience.
 - 👩🏼‍💻 I’m currently working on Quality Assurance at Invillia.
