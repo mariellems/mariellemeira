@@ -1,5 +1,5 @@
 ### Hi all! 👋
-I'm Marielle, 29 years old and Davi's mom. Senior Quality Analyst with more 7 years of experience.
+I'm Marielle! Senior Quality Analyst with more 7 years of experience.
 - 👩🏼‍💻 I’m currently working on Quality Assurance at Itaú Unibanco.
 - 📔 Passionate for read books, learn new things and technologies.
 
